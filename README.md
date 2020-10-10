@@ -3,4 +3,4 @@ this is a simple readme file
 
 ##cmon bro do it 
 im here to rule ok 
-kuch lafda hone ko he
+khatam kahani
